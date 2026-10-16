@@ -1,3 +1,6 @@
-# sou a day bowe! 
+# sou a Day Bowe! 
 
-### sobre mim: desenvolvedora pessoal e profissional, estudante de psicanálise, criadora do sistema bowe mind e da empresa de suplementps boo my!
+### sobre mim: Desenvolvedora Pessoal e Profissional; 
+### Estudante de Psicanálise; 
+### criadora do sistema Bowe Mind;
+### CEO da BOO MY!
